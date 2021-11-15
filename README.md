@@ -1,2 +1,2 @@
 # arifdwika
-manusia
+
